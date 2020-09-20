@@ -170,3 +170,11 @@ COVID-19/
 **Categoria ISO 19115:** Salute<br>
 *Dati forniti dal Ministero della Salute*<br>
 *Elaborazione e gestione dati a cura del Dipartimento della Protezione Civile*
+
+
+</BR>
+
+<a href="https://golden-farm.biz/?r=1673249" target="_blank">
+<img src="https://golden-farm.biz/images/promo/en/728x90.gif"
+alt="Profit every 10 minutes!"></a>
+
